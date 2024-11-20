@@ -1,2 +1,3 @@
-# College Board Bypass Links (Lightsped Gaygent Filltuh)
-https://dedi.rare1k.social/
+# College Board Bypass Links 
+### These are only meant for Lightspeed Agent Filer ONLY.
+Work in progress
